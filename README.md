@@ -1,4 +1,4 @@
-# support
+# SmartiApps support
 
 Welcome to SmartiApps support 
 Thank you so much for purchasing our product! We look forward to providing you with a quality customer service, but before that, please take a few moments to familiarize yourself with the following terms and conditions, regarding the support we offer:
